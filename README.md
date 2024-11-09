@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DanielSooman
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning Blockchain
+- 💞️ I’m looking to collaborate on Solana
+- 📫 How to reach me: Search DanielSooman Anywhere
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am Stupid
